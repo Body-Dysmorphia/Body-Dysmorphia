@@ -18,7 +18,7 @@
 ![gay furry fox boy](https://i.postimg.cc/L69kccpb/Fj458-Be-UUAAmrk-B.jpg)
 ‎ ‎ ★ proshippers/proship supporters (please get away from children)
 <br>
- ★ Hazbin Hotel/Helluva Boss
+ ★ Hazbin Hotel/Helluva Boss (PLEASE PLEASE PLEASE search up about vizziepop she is disgusting)
  
 ‎  ★ Racism / Homophobics / Transphobics, all the basics
   
